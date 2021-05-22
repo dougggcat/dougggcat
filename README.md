@@ -1,4 +1,4 @@
-- hello i am posting the fiflip source code because game nababa SAYS so
+- hello i am posting the fiflip source code because game banana SAYS so
 
 thats probably all i will do here unless i make a ANOTHER mod!!!!!(i wont for a while prolly this was a lot of  uh  y)know)
 <!---
